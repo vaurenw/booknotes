@@ -1,0 +1,7 @@
+#Books 
+
+We’ve all heard about the importance of persistence. But I had misunderstood. Success comes from persistently improving and inventing, not from persistently doing what’s not working.  
+  
+Anytime you think you know what your new business will be doing, remember this quote from serial entrepreneur Steve Blank: “No business plan survives first contact with customers.”  
+  
+In the following stories, you’ll notice some common themes. These are my philosophies from the ten years I spent starting and growing a small business. Business is not about money. It’s about making dreams come true for others and for yourself. Making a company is a great way to improve the world while improving yourself. When you make a company, you make a utopia. It’s where you design your perfect world. Never do anything just for the money. Don’t pursue business just for your own gain. Only answer the calls for help. Success comes from persistently improving and inventing, not from persistently promoting what’s not working. Your business plan is moot. You don’t know what people really want until you start doing it. Starting with no money is an advantage. You don’t need money to start helping people. You can’t please everyone, so proudly exclude people. Make yourself unnecessary to the running of your business. The real point of doing anything is to be happy, so do only what makes you happy.
