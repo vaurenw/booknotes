@@ -1,5 +1,3 @@
-#Books 
-
 We’ve all heard about the importance of persistence. But I had misunderstood. Success comes from persistently improving and inventing, not from persistently doing what’s not working.  
   
 Anytime you think you know what your new business will be doing, remember this quote from serial entrepreneur Steve Blank: “No business plan survives first contact with customers.”  
