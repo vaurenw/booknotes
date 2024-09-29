@@ -56,29 +56,12 @@ In short, when you appeal to people’s LF8 desires, you create a
 drive that motivates them to take an action that will fulfill that desire as
 soon as possible
 
-![[Pasted image 20240425145458.png]]
-![[Pasted image 20240425145544.png]]
-![[Pasted image 20240425145607.png]]
-
-
-![[Pasted image 20240425145710.png]]
-
 Let’s first look at comparison, which is similar to group persuasion— or the bandwagon effect—and is an extremely potent weapon in your advertising armory. The question, **“Everybody else is doing it, why aren’t you?”** exerts a powerful effect on consumers. Human psychology teaches us that no one likes to be left out, and that we’re all driven by a need to belong
 
-![[Pasted image 20240425145905.png]]
-
-
-![[Pasted image 20240425150013.png]]
 
 Remember my client Jay Siff of Moving Targets? He sends his prospects a four-page full-color brochure called “101 Success Stories.” It contains—you guessed it—101 testimonials and photographs from clients who rave about his service. It impossible to not be impressed by this brochure. Even if you didn’t read the rest of the information that accompanies this sales piece, you’d be instantly inclined to believe that the service he promotes actually works. Not only does it work like gangbusters—and yes, it really does—but even 101 people said so!
-
-![[Pasted image 20240425150202.png]]
-![[Pasted image 20240425150230.png]]
-
 
 # The Power of Questions
 
 *What kind of questions?* Any kind! Just look at the writing in this book. You’ll see many examples of this ploy. *What does it do?* (The last sentence is a perfect example.) It causes your prospects to desire the answer. So what happens? They continue reading to find out the answer. I love this technique. *Why?* Because it works like a lure to help me capture greater readership. Use it in headlines. Use it in subheads. And of course, us it in your body copy.
 
-
-![[Pasted image 20240425181239.png]]
